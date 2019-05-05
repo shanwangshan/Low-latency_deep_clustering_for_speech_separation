@@ -1,1 +1,1 @@
-# Low-latency-deep-clustering-for-speech-separation
+# Low-latency deep clustering for speech separation
