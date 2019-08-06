@@ -1,6 +1,6 @@
 # Audio samples
 
-[mixture](https://www.driveplayer.com/#fileIds=1sPcxwF0e7_yjTuBk3ocsPvF5bLwpedwH&userId=103457701150962453303)
+[mixture](https://clyp.it/puckds2r)
 
 
 
